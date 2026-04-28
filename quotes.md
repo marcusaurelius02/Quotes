@@ -36,6 +36,13 @@ Every country has an energy. And that energy rewires you whether you notice it o
 If you're a writer, be okay with repeating what's already been said, because most ideas have already been exhausted, and genuinely novel ideas are rare.
 Nobody follows you because you're talking about something new. They follow you because they want to read your point of view.
 
+---
+
+Intellectual loneliness is a quiet realization that not everyone is willing (or able) to meet you where your mind naturally goes.
+So you learn to shrink, to simplify, to translate yourself into something more digestible just to belong…
+But at some point that becomes unbearable.
+And you’d rather be alone in your depth than surrounded in conversations that never truly reach you.
+
 
 
 
